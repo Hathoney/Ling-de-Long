@@ -2,7 +2,7 @@
 
 This is the story of daisy-doo and miley-moo (although sometimes we call her miley-poo, but that's a story for another day...
 Anyhoo, here they are
-<img src="https://github.com/Hathoney/Ling-de-Long/blob/gh-pages/images/DM1.jpg" width="48">
+<img src="https://github.com/Hathoney/Ling-de-Long/blob/gh-pages/images/DM1.png" width="48">
 
 I'd like to tell you a bit about daisy and miley but daisy first 'cos she's been with me the longest and she's the older (and wisest) of the two pooches.
 

@@ -10,7 +10,8 @@ Daisy-doo
 
 ![isn't she gorgeous](images⁩/IMG_0560.jg)
 
-#Daisy gets her nick-name from the song "Daisy Daisy give me your answer do. I'm half crazy all for the love of you"
+Daisy gets her nick-name from the song "Daisy Daisy give me your answer do. I'm half crazy all for the love of you"
 
+I'd love to be writing more about the girls but right now I'm havin' trouble building with pages.....they say it's easy but I'm not so sure...
 
 ```

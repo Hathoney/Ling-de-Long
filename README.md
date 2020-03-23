@@ -8,7 +8,7 @@ I'd like to tell you a bit about daisy and miley but daisy first 'cos she's been
 
 Daisy-doo
 
-![](https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png | width=100)
+<img src="https://github.com/favicon.ico" width="48">
 
 Daisy gets her nick-name from the song "Daisy Daisy give me your answer do. I'm half crazy all for the love of you"
 

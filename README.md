@@ -2,13 +2,14 @@
 
 This is the story of daisy-doo and miley-moo (although sometimes we call her miley-poo, but that's a story for another day...
 Anyhoo, here they are
-<img src="https://github.com/Hathoney/Ling-de-Long/blob/gh-pages/images/IMG_20190708_164354337.jpg" width="48">
+
+<img src="https://github.com/Hathoney/Ling-de-Long/blob/gh-pages/images/IMG_20190628_183502700.jpg" width="48">
 
 I'd like to tell you a bit about daisy and miley but daisy first 'cos she's been with me the longest and she's the older (and wisest) of the two pooches.
 
 Daisy-doo
 
-<img src="https://github.com/favicon.ico" width="48">
+<img src="https://github.com/Hathoney/Ling-de-Long/blob/gh-pages/images/IMG_20190708_164354337.jpg" width="48">
 
 Daisy gets her nick-name from the song "Daisy Daisy give me your answer do. I'm half crazy all for the love of you"
 

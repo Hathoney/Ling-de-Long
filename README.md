@@ -13,7 +13,9 @@ Daisy-doo
 
 Daisy gets her nick-name from the song "Daisy Daisy give me your answer do. I'm half crazy all for the love of you"
 
-For some reason her nick-name got shortened to doo-doos and then (bizarrely) warped into Boo-boos (I can't believe I'm telling you this!)
+For some reason her nick-name got shortened to doo-doos and then (bizarrely) warped into boo-boos (I can't believe I'm telling you this!) and finally - just
+
+doodes
 
 
 
